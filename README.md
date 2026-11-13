@@ -1,0 +1,1 @@
+# equips-reg.github.io
